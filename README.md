@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Kuldeep singh
-- 👀 I’m interested in App developement
 - 🌱 I’m currently learning M.C.A
 - 📫 Contact me on 7897784876 & singh.kuldeep22798@gmail.com
 
